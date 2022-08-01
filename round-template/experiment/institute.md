@@ -1,1 +1,0 @@
-**Rajalakshmi Engineering College (REC)**
